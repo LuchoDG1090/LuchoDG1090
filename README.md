@@ -4,7 +4,7 @@
 - I´m a Computer Science student at Universidad Nacional de Colombia 
 - I´m passionate about Dat Science & AI
 - 🌱 I’m currently learning about Blockchain and Crypto
-- I´m looking for studiying economy 
+- I´m looking for studying economy 
 
 😄 Pronouns: Lucho
 ⚡ Fun fact: I´m an really into sports
