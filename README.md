@@ -1,9 +1,8 @@
 # 👋 Hi there, I'm Luis Garzón
 
-🎓 I'm a **Computer Science student** at Universidad Nacional de Colombia.  
+🎓 I'm a **System and Computer Engineer student** at Universidad Nacional de Colombia.  
 🌍 I'm from **Colombia**.  
-📊 I'm passionate about **Data Science & AI**.  
-🌱 Currently learning about **Blockchain and Crypto**.  
+📊 I'm passionate about **Data Science & AI**.    
 📈 Interested in studying **Economics or Finance**.  
 
 ---
