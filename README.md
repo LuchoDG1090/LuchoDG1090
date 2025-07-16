@@ -7,6 +7,6 @@
 - I´m looking for studying economy or finance 
 
 😄 Pronouns: Lucho
-⚡ Fun fact: I´m an really into sports
+⚡ Fun fact: I´m an really into sports (weighted calisthenics)
 
 
