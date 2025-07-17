@@ -7,7 +7,7 @@
 
 ---
 
-😄 **Pronouns**: Lucho  
+😄 **Nickname**: Lucho  
 ⚡ **Fun fact**: I'm really into sports, especially **weighted calisthenics** 💪
 
 ---
